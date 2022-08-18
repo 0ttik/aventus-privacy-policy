@@ -1,1 +1,1 @@
-# aventus-privacy-policy
+# privacy policy
